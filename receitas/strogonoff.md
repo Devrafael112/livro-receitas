@@ -10,7 +10,7 @@
 
 ### 1 peito de frango pequeno, cortado em iscas (400 g)
 
-### 1 sachê de **Tempero SAZÓN® Verde**
+### 1 sachê de Tempero 
 
 #### 1 pitada de sal
 
